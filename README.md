@@ -1,1 +1,1 @@
-https://play.google.com/store/apps/details?id=com.levelinfinite.pgame&hl=en
+https://play.google.com/store/apps/details?id=com.NextEntry.WSEZ
